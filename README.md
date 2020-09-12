@@ -14,7 +14,7 @@
 
 - 🙋  I'm Peerawit Pharkdeepinyo (Jao) from Thailand :thailand:
 
-- 📫  Reach me : jawzainw55@hotmail.com
+- 📫  Reach me : peerawitp@protonmail.com
 
 <br>
 
